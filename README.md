@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @123fugt
+- 👀 I’m interested in Gliding
+- 🌱 I’m currently learning HTML & JAVA
+- 📫 How to reach me chris08@mailbox.org
+- 😄 Pronouns: nick/her
+- ⚡ Fun fact: i have a pilots licens
